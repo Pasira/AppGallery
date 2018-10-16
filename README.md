@@ -1,1 +1,1 @@
-# AppGallery
+# Galería-(Red Social)
